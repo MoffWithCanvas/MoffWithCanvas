@@ -1,6 +1,6 @@
 ## Hi, I'm Moff ✨
 
-Kon'nichiwa!! My name is Tumelo, but you can call me Moff. I am a junior-level programmer who wants to make it big😮‍💨 take a look at some of my work...its not much but its a start. I am also a very much beginner Graphics Designer and you know what they say the Golden ratio is God's way or however it goes🫠 </br>
+Kon'nichiwa!! My name is Tumelo, but you can call me Moff. I am a junior-level programmer who wants to make it big😮‍💨 take a look at some of my work... it's not much but it's a start. I dabble in UI and Graphic Design, and you know what they say about the Golden ratio, it's God's way or however it goes🫠 </br>
 
 🧠 Computer Systems Engineering Graduate</br>
 🖼️ Self-taught graphics designer</br>
